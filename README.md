@@ -15,3 +15,8 @@ he doesnt like my fully haired damian for SOME reason.
 <img width="429" height="500" alt="tongue out with andrej n tyler" src="Screenshot_2025-09-02-19-31-38-76_6b389ff4d97f38efc4be9d8728ed2f56.jpg" />
   <p align=center </p>
 this is horrible.
+<b> </b>
+<b> </br>
+<img width="429" height="500" alt="barber haircut featuring tyler" src="Screenshot_2025-09-05-15-47-33-43_6b389ff4d97f38efc4be9d8728ed2f56.jpg" />
+<p align=center </p>
+hey so we had the same barber
