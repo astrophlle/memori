@@ -1,5 +1,5 @@
 <p align=center </p>
-Just a place where every screenshot of every silly thing I have experienced is placed
+basically screenshot dump caus eyes
   <b> </b>
 <b> </br>
 <img width="429" height="500" alt="baldies" src="Screenshot_2025-08-22-21-08-11-57_6b389ff4d97f38efc4be9d8728ed2f56.jpg" />
